@@ -14,13 +14,18 @@
 Staff Email: **l3g1onclanofficial@gmail.com**
 
 * **L0st**: *Leg10n Founder*
-   * Discord: L0st#0115
+   * Discord: [L0st#0115]
  | [Github](https://github.com/L0styB0y)
  | [Twitch](https://www.twitch.tv/leg10n_l0st/)
  | [Reddit](https://www.reddit.com/user/l0stH0rizon/)
 
 * **Acidic**: *Lead Admin* 
-   * Discord: AcidicBlueBeard#2180
+   * Discord: [AcidicBlueBeard#2180]
  | [Github](https://github.com/AcidicBlueBeard)
  | [Twitch](https://www.twitch.tv/acidicbluebeard)
  | [Reddit](https://www.reddit.com/user/AksidBeard)
+
+* **Lady Shae**: *Mom Admin* 
+   * Discord: [𝐿𝒶𝒹𝓎 𝒮𝒽𝒶𝑒#9385]
+ | [Github]
+ | [Reddit](https://www.reddit.com/user/Lady_Paisley)
