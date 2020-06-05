@@ -19,6 +19,5 @@ Discord - L0st#0115
 **[Acidic](https://github.com/AcidicBlueBeard) - Lead Admin** |
 Discord - AcidicBlueBeard#2180
 
-[Twitch](https://www.twitch.tv/acidicbluebeard)
-
+[Twitch](https://www.twitch.tv/acidicbluebeard) | 
 [Reddit](https://www.reddit.com/user/AksidBeard)
