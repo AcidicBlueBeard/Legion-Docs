@@ -14,7 +14,7 @@
 Staff Email: **l3g1onclanofficial@gmail.com**
 
 * **L0st**: *Leg10n Founder*
- | Discord: L0st#0115
+   * Discord: L0st#0115
  | [Github](https://github.com/L0styB0y)
 
 * **Acidic**: *Lead Admin* 
