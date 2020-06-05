@@ -1,4 +1,4 @@
-# Legion-Docs
+# LEG10N-Docs
 **Public docs for the *LEG10N* community**
 
 ## Table Of Contents
