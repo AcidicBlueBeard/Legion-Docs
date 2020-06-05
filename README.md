@@ -1,5 +1,5 @@
 # Legion-Docs
-**Public docs for the LEG10N community**
+**Public docs for the *LEG10N* community**
 
 ## Table Of Contents
 
@@ -13,7 +13,7 @@
 ## Staff
 Staff Email: **l3g1onclanofficial@gmail.com**
 
-* **L0st**: *Leg1on Founder*
+* **L0st**: *Leg10n Founder*
  | Discord: L0st#0115
  | [Github](https://github.com/L0styB0y)
 
