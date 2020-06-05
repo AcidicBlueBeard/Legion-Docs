@@ -18,7 +18,7 @@ Staff Email: **l3g1onclanofficial@gmail.com**
  | [Github](https://github.com/L0styB0y)
 
 * **Acidic**: *Lead Admin* 
- | Discord: AcidicBlueBeard#2180
+   * Discord: AcidicBlueBeard#2180
  | [Github](https://github.com/AcidicBlueBeard)
  | [Twitch](https://www.twitch.tv/acidicbluebeard)
  | [Reddit](https://www.reddit.com/user/AksidBeard)
