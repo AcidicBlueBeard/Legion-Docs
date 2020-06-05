@@ -10,10 +10,10 @@
 ## Staff Contacts
 Staff Email: **l3g1onclanofficial@gmail.com**
 
-L0st - Leg1on founder
+**L0st - Leg1on founder**
 
-**Discord - L0st#0115**
+Discord - L0st#0115
 
-Acidic - Lead Admin
+**Acidic - Lead Admin**
 
-**Discord - AcidicBlueBeard#2180**
+Discord - AcidicBlueBeard#2180
