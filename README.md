@@ -16,8 +16,9 @@ Staff Email: **l3g1onclanofficial@gmail.com**
 **[L0st](https://github.com/L0styB0y) - Leg1on Founder** |
 Discord - L0st#0115
 
-**[Acidic](https://github.com/AcidicBlueBeard) - Lead Admin**
+**__Acidic - Lead Admin__**
 
 Discord - AcidicBlueBeard#2180 | 
 [Twitch](https://www.twitch.tv/acidicbluebeard) | 
-[Reddit](https://www.reddit.com/user/AksidBeard)
+[Reddit](https://www.reddit.com/user/AksidBeard) | 
+[Github](https://github.com/AcidicBlueBeard)
