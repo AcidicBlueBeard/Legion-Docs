@@ -24,8 +24,3 @@ Staff Email: **l3g1onclanofficial@gmail.com**
  | [Github](https://github.com/AcidicBlueBeard)
  | [Twitch](https://www.twitch.tv/acidicbluebeard)
  | [Reddit](https://www.reddit.com/user/AksidBeard)
-
-* **Lady Shae**: *Mom Admin* 
-   * Discord: [𝐿𝒶𝒹𝓎 𝒮𝒽𝒶𝑒#9385]
- | [Github]
- | [Reddit](https://www.reddit.com/user/Lady_Paisley)
