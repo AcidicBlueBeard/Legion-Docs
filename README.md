@@ -12,6 +12,7 @@
 
 ## Staff
 Staff Email: **l3g1onclanofficial@gmail.com**
+
 [Staff Application](https://forms.gle/bjgET4FmuPiKGxZs6)
 
 * **L0st**: *Leg10n Founder*
