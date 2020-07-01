@@ -12,7 +12,7 @@
 
 ## Staff
 Staff Email: **l3g1onclanofficial@gmail.com**
-* [Staff Application](https://forms.gle/bjgET4FmuPiKGxZs6)
+[Staff Application](https://forms.gle/bjgET4FmuPiKGxZs6)
 
 * **L0st**: *Leg10n Founder*
    * Discord: [L0st#0115]
