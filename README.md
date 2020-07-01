@@ -9,6 +9,7 @@
 * [Discord](https://discord.gg/tPDraSc)
 * [YouTube Channel](https://www.youtube.com/channel/UC4D5RT4d-wTSirlfUq0i6nQ)
 * [Steam Group](http://steamcommunity.com/groups/leg1onsteam)
+* [Staff Application](https://forms.gle/bjgET4FmuPiKGxZs6)
 
 ## Staff
 Staff Email: **l3g1onclanofficial@gmail.com**
